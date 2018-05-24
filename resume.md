@@ -11,23 +11,27 @@ masterz1030@gmail.com*
 Sep 2017 – Sekarang: Mahasiswa Ilmu Komputer.
 ### SMA Xaverius Bandar Lampung
 Juni 2015 – Juni 2017
+
 ## Organisasi
-1. PMK
-2. Panitia Inagurasi MAX!!14
-3. Panitia ACRA 2018
-4. Panitia IT TODAY 2018
+- PMK
+- Panitia Inagurasi MAX!!14
+- Panitia ACRA 2018
+- Panitia IT TODAY 2018
+
 ## Film
-1. Dragon Ball
-2. Naruto Shipuden
-3. Boruto
-4. Gundam 
-5. Marvel 
-6. DC
+- Dragon Ball
+- Naruto Shipuden
+- Boruto
+- Gundam 
+- Marvel 
+- DC
+
 ## Olah Raga
-1. Joging
-2. Push Up
-3. Plank
-4. Pull Up
-5. Push Up Rotary
+- Joging
+- Push Up
+- Plank
+- Pull Up
+- Push Up Rotary
+
 ## Hobi
 Tidur, main, belajar, dan refreshing.
